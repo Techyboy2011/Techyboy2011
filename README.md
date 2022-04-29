@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Techyboy2011, and I hope to be a good person here on GitHub!
-- 👀 I’m interested in gaming stuff and exploring the internet.
-- 📫 How to reach me: Comment on my profile if you want to contact me.
+- 👀 I’m interested in gaming stuff and exploring the internet
+- More things coming soon I guess. -put shrug emoji here-
